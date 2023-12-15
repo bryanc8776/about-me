@@ -14,3 +14,13 @@
 8. Lunch
 9. Yoga (tuesday/thursday)
 
+---
+
+## Hobbies
+
+* Soccer
+* Videogames
+    * FIFA mobile
+    * Clash Royale
+* Family time
+
