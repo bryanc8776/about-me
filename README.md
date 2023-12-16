@@ -4,7 +4,7 @@
 
 ## School
 
-I go to the High School of Telecommunication Arts and Technology also known as HSTAT. I am currently in the 10th grade and taking many classes.
+I go to the ***High School of Telecommunication Arts and Technology*** also known as ***[HSTAT](https://www.hstat.org/)***. I am currently in the 10th grade and taking many classes.
 
 ### Schedule
 
