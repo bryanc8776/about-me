@@ -18,9 +18,13 @@
 
 ## Hobbies
 
-* Soccer
-* Videogames
-    * FIFA mobile
-    * Clash Royale
-* Family time
+* Sports
+  * Soccer
+  * Basketball
+* Video games
+  * Minecraft
+  * FIFA mobile/EA FC
+  * Clash Royale
+* Quality family time
+
 
